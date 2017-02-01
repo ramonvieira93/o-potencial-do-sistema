@@ -1,0 +1,1 @@
+# o-potencial-do-sistema
